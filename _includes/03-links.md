@@ -1,1 +1,1 @@
-[Instagram Profile](https://www.instagram.com/amightyo)
+[Github Profile](https://github.com/amightyo)
